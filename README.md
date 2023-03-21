@@ -1,1 +1,2 @@
 # Keneisha-s-Repository
+My name is Keneisha Newton and I grew up in Cambridge, Massachusetts. My family is from a South American country by the name of Guyana. This country is a caribbean country and has a culture that is almost identical to Trinidad and Barbados. I used to go there a lot when I was growing up, but I took a 8 year break from traveling there as my family was trying to keep their finances together. I hope to travel there again soon so that I can visit my family members who are still living there. 
